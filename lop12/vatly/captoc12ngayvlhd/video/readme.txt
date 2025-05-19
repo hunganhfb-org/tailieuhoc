@@ -5,3 +5,5 @@ Phần 02: https://www.tiktok.com/@hanhhoctoanli2006/video/7505806098339761426
 Phần 03: https://www.tiktok.com/@hanhhoctoanli2006/video/7505806333229223175
 File bài tập trắc nghiệm: https://vk.com/wall-225145427_184
 File làm: https://vk.com/wall-225145427_185
+Video chữa bài tập trắc  nghiệm (58 Phút)
+https://www.tiktok.com/@hanhhoctoanli2006/video/7505845271813721362
