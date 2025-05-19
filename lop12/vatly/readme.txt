@@ -35,11 +35,11 @@ https://www.tiktok.com/@hanhhoctoanli2006/video/7504895561225604360?is_from_weba
 1. Bài giảng: Sự chuyển thể của chất
 https://www.tiktok.com/@hanhhoctoanli2006/video/7504948035009498386?is_from_webapp=1&sender_device=pc&web_id=7504516340335822344
 2. Bài giảng: Sự nóng chảy
-
+https://www.tiktok.com/@hanhhoctoanli2006/video/7506093780357942546
 3. Bài giảng: Sự hoá hơi
 https://www.tiktok.com/@hanhhoctoanli2006/video/7504948486102699282?is_from_webapp=1&sender_device=pc&web_id=7504516340335822344
 1. Bài giảng: Khái niệm nội năng, Các cách thay đổi nội năng
-
+https://www.tiktok.com/@hanhhoctoanli2006/video/7506094638885817607
 2. Bài giảng: Thực hiện công, Truyền nhiệt
 https://www.tiktok.com/@hanhhoctoanli2006/video/7504948905948351751?is_from_webapp=1&sender_device=pc&web_id=7504516340335822344
 3. Bài giảng: Định luật I của nhiệt động lực học
