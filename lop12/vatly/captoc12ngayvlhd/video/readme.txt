@@ -7,3 +7,4 @@ File bài tập trắc nghiệm: https://vk.com/wall-225145427_184
 File làm: https://vk.com/wall-225145427_185
 Video chữa bài tập trắc  nghiệm (58 Phút)
 https://www.tiktok.com/@hanhhoctoanli2006/video/7505845271813721362
+File bài tập phần đúng sai: https://vk.com/wall-225145427_186
