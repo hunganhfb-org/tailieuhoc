@@ -8,3 +8,7 @@ File làm: https://vk.com/wall-225145427_185
 Video chữa bài tập trắc  nghiệm (58 Phút)
 https://www.tiktok.com/@hanhhoctoanli2006/video/7505845271813721362
 File bài tập phần đúng sai: https://vk.com/wall-225145427_186
+Video giải bài tập đúng sai (60 Phút)
+Phần 01: https://www.tiktok.com/@hanhhoctoanli2006/video/7506042445570788626
+Phần 02: https://www.tiktok.com/@hanhhoctoanli2006/video/7506042760651164935
+Phần 03: https://www.tiktok.com/@hanhhoctoanli2006/video/7506043169742605576
