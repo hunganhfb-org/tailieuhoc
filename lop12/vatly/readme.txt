@@ -53,6 +53,13 @@ https://www.tiktok.com/@hanhhoctoanli2006/video/7504950786040827144?is_from_weba
 2. Bài giảng: Nhiệt hoá hơi riêng
 https://www.tiktok.com/@hanhhoctoanli2006/video/7504951006669655304?is_from_webapp=1&sender_device=pc&web_id=7504516340335822344
 
+Bonus
+Kỹ thuật vòng tròn lượng giác
+BÀI GIẢNG
+https://www.tiktok.com/@hanhhoctoanli2006/video/7506093513747205383
+TEST
+https://www.tiktok.com/@hanhhoctoanli2006/video/7506091930585959687
+
 
 
 
