@@ -1,29 +1,26 @@
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/86128091-3ada-4ff8-ab10-baea1b1d9a48" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/c5db1f25-72b4-48ca-b0f7-16bbe4893f48" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/e5e19f7a-de2b-4006-bae0-4f8391ec17d6" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/3cf4eb63-5397-4c9f-beca-3ce2f713f81b" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/1e569bcf-9e46-4e84-aab8-1e91b079582c" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/c6fece44-2b12-4c10-8c68-0048785e265c" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/18ff5654-4ef2-4d1d-a2c0-848f7f98d425" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/3db7e647-efb4-4562-9531-8284e3152600" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/64cce183-f9d3-4f3b-a94b-03051e8a4d63" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/935c1c0c-65a6-4ac6-bcbe-dd7d815c4ac7" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/7f6760b8-0024-477d-bc71-954ff8a3ee2a" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/b2944f12-c1e4-406b-9b9e-36cf75bdece9" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/c4ed7510-589f-42eb-88af-74e949b08fe4" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/a2a48daa-0bf9-410e-aae1-793d8bee0f4c" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/0f4c12c7-abfe-483c-a5d7-7c08155a36f2" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/1af0c56b-83b4-4cbd-8394-051c6149da50" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/897c9e03-e298-48aa-982a-94d839276cce" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/cb636971-54c9-4cc7-82ce-689e0571bc05" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/9f7f8235-5970-4806-95bc-52c711ded01b" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/477968f7-54aa-4721-9a20-f7051d5d5b91" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/42ca402e-c064-4b15-b014-1da02c7ac6ad" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/c7aa2031-be91-4f46-9ea0-91c41cd4c1bf" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/56e68981-9cc8-430a-9fb8-4b19d2bb0f6c" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/ca977542-41d0-4e46-badf-206e0d383f91" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/f88501fb-7ce6-4a04-ab5a-4314fcacd282" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/237e7cca-50fb-497e-ac99-e849e410ec49" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/be4358d4-6097-43d8-8b8a-c58bea3215e7" />
-<img width="893" height="1155" alt="image" src="https://github.com/user-attachments/assets/028adab3-9316-4100-a54c-6cc6bdd2942f" />
-
+![Bản viết tay - TA10_page-0001](https://github.com/user-attachments/assets/178e4668-635d-4a65-b560-586499a26b33)
+![Bản viết tay - TA10_page-0002](https://github.com/user-attachments/assets/693c17a5-ed79-44ee-b59f-20eadb55abcd)
+![Bản viết tay - TA10_page-0003](https://github.com/user-attachments/assets/9b1a020d-89cb-47b2-b2c2-2fd5fa9e96ec)
+![Bản viết tay - TA10_page-0004](https://github.com/user-attachments/assets/3b627f5a-92de-4801-b7b2-3e165b433abb)
+![Bản viết tay - TA10_page-0005](https://github.com/user-attachments/assets/20d0d8bd-9697-40b3-8413-dfa6c8538409)
+![Bản viết tay - TA10_page-0006](https://github.com/user-attachments/assets/7b65f704-8abc-48cf-b05e-410d01e7b279)
+![Bản viết tay - TA10_page-0007](https://github.com/user-attachments/assets/3d4c4bb2-e10e-4e48-9c14-f0604735b4df)
+![Bản viết tay - TA10_page-0008](https://github.com/user-attachments/assets/9859285e-1548-4fcf-b7a1-24c5d54b7926)
+![Bản viết tay - TA10_page-0009](https://github.com/user-attachments/assets/041a75ac-f974-432e-84c8-1509f0b2150f)
+![Bản viết tay - TA10_page-0010](https://github.com/user-attachments/assets/8aa8e0c2-1bef-46ca-9405-b9729cc6e99b)
+![Bản viết tay - TA10_page-0011](https://github.com/user-attachments/assets/880a2f03-58db-402f-8337-ebd52a8ed0dd)
+![Bản viết tay - TA10_page-0012](https://github.com/user-attachments/assets/d932a0a6-d537-4a10-a76e-ac1dc78b7242)
+![Bản viết tay - TA10_page-0013](https://github.com/user-attachments/assets/617042c0-ba84-4a19-ba44-aa108a7539b5)
+![Bản viết tay - TA10_page-0014](https://github.com/user-attachments/assets/38bf0f06-6d64-4b99-8075-ed8b94c7ebda)
+![Bản viết tay - TA10_page-0015](https://github.com/user-attachments/assets/4d074907-f254-4964-b483-1b34b1726080)
+![Bản viết tay - TA10_page-0016](https://github.com/user-attachments/assets/8475c3be-520b-4ef4-ae1b-44bc5e84c6b4)
+![Bản viết tay - TA10_page-0017](https://github.com/user-attachments/assets/e38ee684-51ee-49e7-a887-8b1bc3f579e9)
+![Bản viết tay - TA10_page-0018](https://github.com/user-attachments/assets/90ab1fcc-3243-402e-ac39-0c271e94545c)
+![Bản viết tay - TA10_page-0019](https://github.com/user-attachments/assets/fc84f468-2c7e-40c6-b4b8-f3f2be32e38c)
+![Bản viết tay - TA10_page-0020](https://github.com/user-attachments/assets/d7ef114b-b4b0-48ad-95f0-8ad87a2dd8ee)
+![Bản viết tay - TA10_page-0021](https://github.com/user-attachments/assets/e38aadaa-923d-42ee-afbc-76f1ecd09813)
+![Bản viết tay - TA10_page-0022](https://github.com/user-attachments/assets/ca2b302b-30b1-445d-a172-c0b114a1186c)
+![Bản viết tay - TA10_page-0023](https://github.com/user-attachments/assets/3dfef2f9-d206-479e-9453-4681e94189ee)
+![Bản viết tay - TA10_page-0024](https://github.com/user-attachments/assets/0efd6109-f041-427a-a062-d03d2ee9c945)
+![Bản viết tay - TA10_page-0025](https://github.com/user-attachments/assets/336f297d-fc6e-4655-9711-bdee43de6ed0)
+![Bản viết tay - TA10_page-0026](https://github.com/user-attachments/assets/1c84add0-2f62-4582-988e-07fc3666c8fb)
