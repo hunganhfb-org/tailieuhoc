@@ -2,3 +2,4 @@
 ##### expectancy: sự mong đợi
 ##### Life expectancy: tuổi thọ
 ##### half a century: nửa thế kỷ
+##### average: trung bình
