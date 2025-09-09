@@ -7,3 +7,4 @@
 ##### alumni: cựu sinh viên
 ##### alma mater: trường cũ
 ##### reunion: đoàn tụ
+##### reflect on: suy ngẫm về
