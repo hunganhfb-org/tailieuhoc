@@ -1,5 +1,5 @@
 ### Ngày 9/9/2025
-##### expectancy: sự mong đợi
+##### expectancy: sự mong đợi ______________________________________ severely: nghiêm trọng
 ##### Life expectancy: tuổi thọ
 ##### half a century: nửa thế kỷ
 ##### average: trung bình
