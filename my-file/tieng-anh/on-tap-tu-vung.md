@@ -4,3 +4,4 @@
 ##### half a century: nửa thế kỷ
 ##### average: trung bình
 ##### ailment: bệnh tật
+##### alumni: cựu sinh viên
