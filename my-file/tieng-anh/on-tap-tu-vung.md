@@ -1,7 +1,7 @@
 ### Ngày 9/9/2025
 ##### expectancy: sự mong đợi ______________________________________ severely: nghiêm trọng
 ##### Life expectancy: tuổi thọ ____________________________________ age-related: liên quan đến tuổi tác
-##### half a century: nửa thế kỷ
+##### half a century: nửa thế kỷ ___________________________________ 
 ##### average: trung bình
 ##### ailment: bệnh tật
 ##### alumni: cựu sinh viên
