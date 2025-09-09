@@ -5,3 +5,4 @@
 ##### average: trung bình
 ##### ailment: bệnh tật
 ##### alumni: cựu sinh viên
+##### alma mater: trường cũ
