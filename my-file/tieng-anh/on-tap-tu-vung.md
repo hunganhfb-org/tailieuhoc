@@ -8,3 +8,5 @@
 ##### alma mater: trường cũ
 ##### reunion: đoàn tụ
 ##### reflect on: suy ngẫm về
+##### infant: trẻ sơ sinh
+##### mortality: tỷ lệ tử vong
