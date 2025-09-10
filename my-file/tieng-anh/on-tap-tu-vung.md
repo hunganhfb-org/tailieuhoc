@@ -10,3 +10,7 @@
 ##### reflect on: suy ngẫm về ________________________________________ examine: kiểm tra; nghiên cứu
 ##### infant: trẻ sơ sinh _______________________________________________ shopping cart: xe mua hàng
 ##### mortality: tỷ lệ tử vong _________________________________________ make a purchase: thanh toán
+##### merchandise: hàng hóa _________________________________________ assemble: lắp ráp
+##### shelves: kệ _______________________________________________________ bench: băng ghế
+##### suitcases: va li ___________________________________________________ intersection: ngã tư
+##### park: đậu xe _____________________________________________________ line up: xếp hàng
