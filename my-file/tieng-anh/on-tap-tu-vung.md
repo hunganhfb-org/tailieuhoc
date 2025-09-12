@@ -37,6 +37,8 @@
 ##### tractor: máy kéo _________________________________ occur: xảy ra
 ##### (A) anything: bất cứ thứ gì ______________________ (B) whose: của ai
 ##### (C) however: tuy nhiên ___________________________ (D) whichever: bất cứ cái nào
+##### (A) Because: Bởi vì ______________________________ (B) Whether: Liệu
+##### (C) Considering: Cân nhắc ________________________ (D) Alongside: Bên cạnh
 
 
 ### Ngày 9/9/2025
