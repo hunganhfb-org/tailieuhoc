@@ -19,7 +19,11 @@
 ##### (D) already: rồi _____________________________________________ charity: tổ chức từ thiện
 ##### anniversary: dịp kỉ niệm _____________________________________ (A) wide: rộng
 ##### (B) primary: chính ___________________________________________ (C) sizable: đáng kể
-##### (D) severe: nghiêm trọng
+##### (D) severe: nghiêm trọng _____________________________________ preparation: chuẩn bị
+##### (A) since: kể từ _____________________________________________ (B) shortly: trong thời gian ngắn
+##### (C) whereas: trong khi _______________________________________ (D) attempted: đã cố gắng
+##### upcoming: sắp tới ____________________________________________ trade: buôn bán
+##### convention: hội nghị
 
 ### Ngày 9/9/2025
 ##### expectancy: sự mong đợi ______________________________________ severely: nghiêm trọng
