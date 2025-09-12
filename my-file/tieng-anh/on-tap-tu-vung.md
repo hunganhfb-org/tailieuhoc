@@ -1,23 +1,23 @@
 ### Ngày 9/9/2025
 ##### expectancy: sự mong đợi ______________________________________ severely: nghiêm trọng
-##### Life expectancy: tuổi thọ ______________________________________ age-related: liên quan đến tuổi tác
-##### half a century: nửa thế kỷ _____________________________________ look in: nhìn vào
-##### average: trung bình ____________________________________________ pass out: phát
-##### ailment: bệnh tật _______________________________________________ rearrange: sắp xếp
-##### alumni: cựu sinh viên __________________________________________ microscope: chiếc kính hiển vi
-##### alma mater: trường cũ _________________________________________ coat: áo khoác
-##### reunion: đoàn tụ _______________________________________________ put away: cất đi
-##### reflect on: suy ngẫm về ________________________________________ examine: kiểm tra; nghiên cứu
-##### infant: trẻ sơ sinh _______________________________________________ shopping cart: xe mua hàng
-##### mortality: tỷ lệ tử vong _________________________________________ make a purchase: thanh toán
-##### merchandise: hàng hóa _________________________________________ assemble: lắp ráp
-##### shelves: kệ _______________________________________________________ bench: băng ghế
-##### suitcases: va li ___________________________________________________ intersection: ngã tư
-##### park: đậu xe _____________________________________________________ line up: xếp hàng
-##### delivery: vận chuyển ____________________________________________ frozen: đông lạnh
-##### (A) quickly: nhanh chóng _______________________________________ (B) enough: đủ
-##### (C) closely: chặt chẽ _____________________________________________ (D) partly: một phần
-##### freezer: tủ đông _________________________________________________ hand out: trao tặng
-##### attendee: người tham dự _______________________________________ compile: biên dịch
-##### hiking: đi bộ đường dài _________________________________________ trail: đường mòn
-##### In accordance with: theo ________________________________________ reimbursement: hoàn trả
+##### Life expectancy: tuổi thọ ____________________________________ age-related: liên quan đến tuổi tác
+##### half a century: nửa thế kỷ ___________________________________ look in: nhìn vào
+##### average: trung bình __________________________________________ pass out: phát
+##### ailment: bệnh tật ____________________________________________ rearrange: sắp xếp
+##### alumni: cựu sinh viên ________________________________________ microscope: chiếc kính hiển vi
+##### alma mater: trường cũ ________________________________________ coat: áo khoác
+##### reunion: đoàn tụ _____________________________________________ put away: cất đi
+##### reflect on: suy ngẫm về ______________________________________ examine: kiểm tra; nghiên cứu
+##### infant: trẻ sơ sinh __________________________________________ shopping cart: xe mua hàng
+##### mortality: tỷ lệ tử vong _____________________________________ make a purchase: thanh toán
+##### merchandise: hàng hóa ________________________________________ assemble: lắp ráp
+##### shelves: kệ __________________________________________________ bench: băng ghế
+##### suitcases: va li _____________________________________________ intersection: ngã tư
+##### park: đậu xe _________________________________________________ line up: xếp hàng
+##### delivery: vận chuyển _________________________________________ frozen: đông lạnh
+##### (A) quickly: nhanh chóng _____________________________________ (B) enough: đủ
+##### (C) closely: chặt chẽ ________________________________________ (D) partly: một phần
+##### freezer: tủ đông _____________________________________________ hand out: trao tặng
+##### attendee: người tham dự ______________________________________ compile: biên dịch
+##### hiking: đi bộ đường dài ______________________________________ trail: đường mòn
+##### In accordance with: theo _____________________________________ reimbursement: hoàn trả
