@@ -14,7 +14,10 @@
 ##### (B) briefly: ngắn ngủi _______________________________________ (C) lately: gần đây
 ##### (D) exactly: chính xác _______________________________________ catalogue: danh mục
 ##### dishwashers: máy rửa chén ____________________________________ compact: nhỏ gọn
-##### from + time + onward: kế từ khi nào trở đi
+##### from + time + onward: kế từ khi nào trở đi ___________________ (A) intensely: mãnh liệt
+##### (B) ultimately: cuối cùng ____________________________________ (C) concisely: ngắn gọn
+##### (D) already: rồi
+
 ### Ngày 9/9/2025
 ##### expectancy: sự mong đợi ______________________________________ severely: nghiêm trọng
 ##### Life expectancy: tuổi thọ ____________________________________ age-related: liên quan đến tuổi tác
