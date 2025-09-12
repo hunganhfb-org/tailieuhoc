@@ -1,3 +1,5 @@
+### Ngày 12/09/2025
+##### 
 ### Ngày 9/9/2025
 ##### expectancy: sự mong đợi ______________________________________ severely: nghiêm trọng
 ##### Life expectancy: tuổi thọ ____________________________________ age-related: liên quan đến tuổi tác
@@ -33,4 +35,3 @@
 ##### consumer: người tiêu dùng ____________________________________ efficient: có hiệu quả
 ##### (A) Unless: Trừ khi __________________________________________ (B) At once: Ngay lập tức
 ##### (C) Now that: Bây giờ ________________________________________ (D) Although: Mặc dù
-
