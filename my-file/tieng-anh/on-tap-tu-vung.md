@@ -32,7 +32,12 @@
 ##### upon: trên; gần __________________________________ propose: đề xuất
 ##### competitor: đối thủ cạnh tranh ___________________ (A) investment: đầu tư
 ##### (B) acquisition: mua lại _________________________ (C) agenda: chương trình nghị sự
-##### (D) vision: tầm nhìn
+##### (D) vision: tầm nhìn _____________________________ warranty: bảo hành
+##### expire: hết hạn __________________________________ purchase: mua
+##### tractor: máy kéo _________________________________ occur: xảy ra
+##### (A) anything: bất cứ thứ gì ______________________ (B) whose: của ai
+##### (C) however: tuy nhiên ___________________________ (D) whichever: bất cứ cái nào
+
 
 ### Ngày 9/9/2025
 ##### expectancy: sự mong đợi __________________________ severely: nghiêm trọng
