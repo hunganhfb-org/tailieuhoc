@@ -1,5 +1,8 @@
 ### Ngày 12/09/2025
-##### 
+##### premiere: buổi ra mắt ________________________________________ publicity: công khai
+##### reserve: dự trữ ______________________________________________ theater: nhà hát
+##### (A) secure: an toàn __________________________________________ (B) certain: chắc chắn
+##### (C) welcome: chào đón ________________________________________ (D) available: sẵn sàng
 ### Ngày 9/9/2025
 ##### expectancy: sự mong đợi ______________________________________ severely: nghiêm trọng
 ##### Life expectancy: tuổi thọ ____________________________________ age-related: liên quan đến tuổi tác
