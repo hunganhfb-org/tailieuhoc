@@ -28,6 +28,9 @@
 ##### sculptures: tác phẩm điêu khắc ___________________ materials: nguyên vật liệu
 ##### (A) specialized: chuyên biệt _____________________ (B) distinguished: nổi bật
 ##### (C) approached: tiếp cận _________________________ (D) committed: cam kết
+##### article: bài báo _________________________________ stock: cổ phần
+##### upon: trên; gần __________________________________ propose: đề xuất
+##### competitor: đối thủ cạnh tranh
 
 ### Ngày 9/9/2025
 ##### expectancy: sự mong đợi __________________________ severely: nghiêm trọng
