@@ -16,7 +16,10 @@
 ##### dishwashers: máy rửa chén ____________________________________ compact: nhỏ gọn
 ##### from + time + onward: kế từ khi nào trở đi ___________________ (A) intensely: mãnh liệt
 ##### (B) ultimately: cuối cùng ____________________________________ (C) concisely: ngắn gọn
-##### (D) already: rồi
+##### (D) already: rồi _____________________________________________ charity: tổ chức từ thiện
+##### anniversary: dịp kỉ niệm _____________________________________ (A) wide: rộng
+##### (B) primary: chính ___________________________________________ (C) sizable: đáng kể
+##### (D) severe: nghiêm trọng
 
 ### Ngày 9/9/2025
 ##### expectancy: sự mong đợi ______________________________________ severely: nghiêm trọng
