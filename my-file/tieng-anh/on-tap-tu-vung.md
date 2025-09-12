@@ -6,6 +6,13 @@
 ##### (A) Until: Cho đến khi _______________________________________ (B) Provided: Được cung cấp
 ##### (C) Within: Trong vòng _______________________________________ (D) Involving: Bao gồm
 ##### announce: công bố ____________________________________________ successor: người kế nhiệm
+##### (A) occasionally: thỉnh thoảng _______________________________ (B) briefly: ngắn ngủi
+##### (C) lately: gần đây __________________________________________ (D) exactly: chính xác
+##### committee: ủy ban ____________________________________________ proud: tự hào
+##### cost: chi phí ________________________________________________ initial: ban đầu
+##### estimate: ước tính ___________________________________________ (A) occasionally: thỉnh thoảng
+##### (B) briefly: ngắn ngủi _______________________________________ (C) lately: gần đây
+##### (D) exactly: chính xác _______________________________________ catalogue: danh mục
 ### Ngày 9/9/2025
 ##### expectancy: sự mong đợi ______________________________________ severely: nghiêm trọng
 ##### Life expectancy: tuổi thọ ____________________________________ age-related: liên quan đến tuổi tác
