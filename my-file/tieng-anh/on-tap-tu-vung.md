@@ -39,6 +39,9 @@
 ##### (C) however: tuy nhiên ___________________________ (D) whichever: bất cứ cái nào
 ##### (A) Because: Bởi vì ______________________________ (B) Whether: Liệu
 ##### (C) Considering: Cân nhắc ________________________ (D) Alongside: Bên cạnh
+##### label: nhãn ______________________________________ database: cơ sở dữ liệu
+##### (A) acknowledged: được công nhận _________________ (B) nominated: được đề cử
+##### (C) belonged: thuộc về ___________________________ (D) permitted: được phép
 
 
 ### Ngày 9/9/2025
