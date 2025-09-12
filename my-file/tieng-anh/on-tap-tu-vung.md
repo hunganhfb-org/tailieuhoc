@@ -1,66 +1,66 @@
 ### Ngày 12/09/2025
-##### premiere: buổi ra mắt ________________________________________ publicity: công khai
-##### reserve: dự trữ ______________________________________________ theater: nhà hát
-##### (A) secure: an toàn __________________________________________ (B) certain: chắc chắn
-##### (C) welcome: chào đón ________________________________________ (D) available: sẵn sàng
-##### (A) Until: Cho đến khi _______________________________________ (B) Provided: Được cung cấp
-##### (C) Within: Trong vòng _______________________________________ (D) Involving: Bao gồm
-##### announce: công bố ____________________________________________ successor: người kế nhiệm
-##### (A) occasionally: thỉnh thoảng _______________________________ (B) briefly: ngắn ngủi
-##### (C) lately: gần đây __________________________________________ (D) exactly: chính xác
-##### committee: ủy ban ____________________________________________ proud: tự hào
-##### cost: chi phí ________________________________________________ initial: ban đầu
-##### estimate: ước tính ___________________________________________ (A) occasionally: thỉnh thoảng
-##### (B) briefly: ngắn ngủi _______________________________________ (C) lately: gần đây
-##### (D) exactly: chính xác _______________________________________ catalogue: danh mục
-##### dishwashers: máy rửa chén ____________________________________ compact: nhỏ gọn
-##### from + time + onward: kế từ khi nào trở đi ___________________ (A) intensely: mãnh liệt
-##### (B) ultimately: cuối cùng ____________________________________ (C) concisely: ngắn gọn
-##### (D) already: rồi _____________________________________________ charity: tổ chức từ thiện
-##### anniversary: dịp kỉ niệm _____________________________________ (A) wide: rộng
-##### (B) primary: chính ___________________________________________ (C) sizable: đáng kể
-##### (D) severe: nghiêm trọng _____________________________________ preparation: chuẩn bị
-##### (A) since: kể từ _____________________________________________ (B) shortly: trong thời gian ngắn
-##### (C) whereas: trong khi _______________________________________ (D) attempted: đã cố gắng
-##### upcoming: sắp tới ____________________________________________ trade: buôn bán
-##### convention: hội nghị _________________________________________ throughout: trong suốt
-##### artist: nghệ sĩ ______________________________________________ intricate: phức tạp
-##### sculptures: tác phẩm điêu khắc _______________________________ materials: nguyên vật liệu
-##### (A) specialized: chuyên biệt _________________________________ (B) distinguished: nổi bật
-##### (C) approached: tiếp cận _____________________________________ (D) committed: cam kết
+##### premiere: buổi ra mắt ____________________________ publicity: công khai
+##### reserve: dự trữ __________________________________ theater: nhà hát
+##### (A) secure: an toàn ______________________________ (B) certain: chắc chắn
+##### (C) welcome: chào đón ____________________________ (D) available: sẵn sàng
+##### (A) Until: Cho đến khi ___________________________ (B) Provided: Được cung cấp
+##### (C) Within: Trong vòng ___________________________ (D) Involving: Bao gồm
+##### announce: công bố ________________________________ successor: người kế nhiệm
+##### (A) occasionally: thỉnh thoảng ___________________ (B) briefly: ngắn ngủi
+##### (C) lately: gần đây ______________________________ (D) exactly: chính xác
+##### committee: ủy ban ________________________________ proud: tự hào
+##### cost: chi phí ____________________________________ initial: ban đầu
+##### estimate: ước tính _______________________________ (A) occasionally: thỉnh thoảng
+##### (B) briefly: ngắn ngủi ___________________________ (C) lately: gần đây
+##### (D) exactly: chính xác ___________________________ catalogue: danh mục
+##### dishwashers: máy rửa chén ________________________ compact: nhỏ gọn
+##### from + time + onward: kế từ khi nào trở đi _______ (A) intensely: mãnh liệt
+##### (B) ultimately: cuối cùng ________________________ (C) concisely: ngắn gọn
+##### (D) already: rồi _________________________________ charity: tổ chức từ thiện
+##### anniversary: dịp kỉ niệm _________________________ (A) wide: rộng
+##### (B) primary: chính _______________________________ (C) sizable: đáng kể
+##### (D) severe: nghiêm trọng _________________________ preparation: chuẩn bị
+##### (A) since: kể từ _________________________________ (B) shortly: trong thời gian ngắn
+##### (C) whereas: trong khi ___________________________ (D) attempted: đã cố gắng
+##### upcoming: sắp tới ________________________________ trade: buôn bán
+##### convention: hội nghị _____________________________ throughout: trong suốt
+##### artist: nghệ sĩ __________________________________ intricate: phức tạp
+##### sculptures: tác phẩm điêu khắc ___________________ materials: nguyên vật liệu
+##### (A) specialized: chuyên biệt _____________________ (B) distinguished: nổi bật
+##### (C) approached: tiếp cận _________________________ (D) committed: cam kết
 
 ### Ngày 9/9/2025
-##### expectancy: sự mong đợi ______________________________________ severely: nghiêm trọng
-##### Life expectancy: tuổi thọ ____________________________________ age-related: liên quan đến tuổi tác
-##### half a century: nửa thế kỷ ___________________________________ look in: nhìn vào
-##### average: trung bình __________________________________________ pass out: phát
-##### ailment: bệnh tật ____________________________________________ rearrange: sắp xếp
-##### alumni: cựu sinh viên ________________________________________ microscope: chiếc kính hiển vi
-##### alma mater: trường cũ ________________________________________ coat: áo khoác
-##### reunion: đoàn tụ _____________________________________________ put away: cất đi
-##### reflect on: suy ngẫm về ______________________________________ examine: kiểm tra; nghiên cứu
-##### infant: trẻ sơ sinh __________________________________________ shopping cart: xe mua hàng
-##### mortality: tỷ lệ tử vong _____________________________________ make a purchase: thanh toán
-##### merchandise: hàng hóa ________________________________________ assemble: lắp ráp
-##### shelves: kệ __________________________________________________ bench: băng ghế
-##### suitcases: va li _____________________________________________ intersection: ngã tư
-##### park: đậu xe _________________________________________________ line up: xếp hàng
-##### delivery: vận chuyển _________________________________________ frozen: đông lạnh
-##### (A) quickly: nhanh chóng _____________________________________ (B) enough: đủ
-##### (C) closely: chặt chẽ ________________________________________ (D) partly: một phần
-##### freezer: tủ đông _____________________________________________ hand out: trao tặng
-##### attendee: người tham dự ______________________________________ compile: biên dịch
-##### hiking: đi bộ đường dài ______________________________________ trail: đường mòn
-##### In accordance with: theo _____________________________________ reimbursement: hoàn trả
-##### postponed: hoãn lại __________________________________________ construction: sự thi công
-##### architecture: ngành kiến ​​​​trúc ________________________________ downtown: trung tâm thành phố
-##### onward: tiến về phía trước ___________________________________ (A) among: giữa
-##### (B) from: từ _________________________________________________ (C) over: qua
-##### (D) toward: theo hướng _______________________________________ (A) meeting: cuộc họp
-##### (B) benefit: lợi ích _________________________________________ (C) strategy: chiến lược
-##### (D) recognition: sự công nhận ________________________________ conduct: tiến hành
-##### extensive: rộng rãi __________________________________________ associates: cộng sự
-##### insights: hiểu biết sâu sắc __________________________________ target: mục tiêu
-##### consumer: người tiêu dùng ____________________________________ efficient: có hiệu quả
-##### (A) Unless: Trừ khi __________________________________________ (B) At once: Ngay lập tức
-##### (C) Now that: Bây giờ ________________________________________ (D) Although: Mặc dù
+##### expectancy: sự mong đợi __________________________ severely: nghiêm trọng
+##### Life expectancy: tuổi thọ ________________________ age-related: liên quan đến tuổi tác
+##### half a century: nửa thế kỷ _______________________ look in: nhìn vào
+##### average: trung bình ______________________________ pass out: phát
+##### ailment: bệnh tật ________________________________ rearrange: sắp xếp
+##### alumni: cựu sinh viên ____________________________ microscope: chiếc kính hiển vi
+##### alma mater: trường cũ ____________________________ coat: áo khoác
+##### reunion: đoàn tụ _________________________________ put away: cất đi
+##### reflect on: suy ngẫm về __________________________ examine: kiểm tra; nghiên cứu
+##### infant: trẻ sơ sinh ______________________________ shopping cart: xe mua hàng
+##### mortality: tỷ lệ tử vong _________________________ make a purchase: thanh toán
+##### merchandise: hàng hóa ____________________________ assemble: lắp ráp
+##### shelves: kệ ______________________________________ bench: băng ghế
+##### suitcases: va li _________________________________ intersection: ngã tư
+##### park: đậu xe _____________________________________ line up: xếp hàng
+##### delivery: vận chuyển _____________________________ frozen: đông lạnh
+##### (A) quickly: nhanh chóng _________________________ (B) enough: đủ
+##### (C) closely: chặt chẽ ____________________________ (D) partly: một phần
+##### freezer: tủ đông _________________________________ hand out: trao tặng
+##### attendee: người tham dự __________________________ compile: biên dịch
+##### hiking: đi bộ đường dài __________________________ trail: đường mòn
+##### In accordance with: theo _________________________ reimbursement: hoàn trả
+##### postponed: hoãn lại ______________________________ construction: sự thi công
+##### architecture: ngành kiến ​​​​trúc ____________________ downtown: trung tâm thành phố
+##### onward: tiến về phía trước _______________________ (A) among: giữa
+##### (B) from: từ _____________________________________ (C) over: qua
+##### (D) toward: theo hướng ___________________________ (A) meeting: cuộc họp
+##### (B) benefit: lợi ích _____________________________ (C) strategy: chiến lược
+##### (D) recognition: sự công nhận ____________________ conduct: tiến hành
+##### extensive: rộng rãi ______________________________ associates: cộng sự
+##### insights: hiểu biết sâu sắc ______________________ target: mục tiêu
+##### consumer: người tiêu dùng ________________________ efficient: có hiệu quả
+##### (A) Unless: Trừ khi ______________________________ (B) At once: Ngay lập tức
+##### (C) Now that: Bây giờ ____________________________ (D) Although: Mặc dù
