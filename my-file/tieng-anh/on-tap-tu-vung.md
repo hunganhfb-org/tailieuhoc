@@ -13,6 +13,7 @@
 ##### estimate: ước tính ___________________________________________ (A) occasionally: thỉnh thoảng
 ##### (B) briefly: ngắn ngủi _______________________________________ (C) lately: gần đây
 ##### (D) exactly: chính xác _______________________________________ catalogue: danh mục
+##### dishwashers: máy rửa chén ____________________________________ compact: nhỏ gọn
 ### Ngày 9/9/2025
 ##### expectancy: sự mong đợi ______________________________________ severely: nghiêm trọng
 ##### Life expectancy: tuổi thọ ____________________________________ age-related: liên quan đến tuổi tác
