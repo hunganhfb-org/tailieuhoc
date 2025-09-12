@@ -21,3 +21,10 @@
 ##### attendee: người tham dự ______________________________________ compile: biên dịch
 ##### hiking: đi bộ đường dài ______________________________________ trail: đường mòn
 ##### In accordance with: theo _____________________________________ reimbursement: hoàn trả
+##### postponed: hoãn lại __________________________________________ construction: sự thi công
+##### architecture: ngành kiến ​​​​trúc ________________________________ downtown: trung tâm thành phố
+##### onward: tiến về phía trước ___________________________________ (A) among: giữa
+##### (B) from: từ _________________________________________________ (C) over: qua
+##### (D) toward: theo hướng _______________________________________ (A) meeting: cuộc họp
+##### (B) benefit: lợi ích _________________________________________ (C) strategy: chiến lược
+##### (D) recognition: sự công nhận
