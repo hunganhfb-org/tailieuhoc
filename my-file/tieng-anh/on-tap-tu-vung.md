@@ -23,7 +23,11 @@
 ##### (A) since: kể từ _____________________________________________ (B) shortly: trong thời gian ngắn
 ##### (C) whereas: trong khi _______________________________________ (D) attempted: đã cố gắng
 ##### upcoming: sắp tới ____________________________________________ trade: buôn bán
-##### convention: hội nghị
+##### convention: hội nghị _________________________________________ throughout: trong suốt
+##### artist: nghệ sĩ ______________________________________________ intricate: phức tạp
+##### sculptures: tác phẩm điêu khắc _______________________________ materials: nguyên vật liệu
+##### (A) specialized: chuyên biệt _________________________________ (B) distinguished: nổi bật
+##### (C) approached: tiếp cận _____________________________________ (D) committed: cam kết
 
 ### Ngày 9/9/2025
 ##### expectancy: sự mong đợi ______________________________________ severely: nghiêm trọng
