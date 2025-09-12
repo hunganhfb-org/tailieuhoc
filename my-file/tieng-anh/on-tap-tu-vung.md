@@ -20,3 +20,4 @@
 ##### freezer: tủ đông _________________________________________________ hand out: trao tặng
 ##### attendee: người tham dự _______________________________________ compile: biên dịch
 ##### hiking: đi bộ đường dài _________________________________________ trail: đường mòn
+##### In accordance with: theo ________________________________________ reimbursement: hoàn trả
