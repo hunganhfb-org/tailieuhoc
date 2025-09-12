@@ -27,4 +27,10 @@
 ##### (B) from: từ _________________________________________________ (C) over: qua
 ##### (D) toward: theo hướng _______________________________________ (A) meeting: cuộc họp
 ##### (B) benefit: lợi ích _________________________________________ (C) strategy: chiến lược
-##### (D) recognition: sự công nhận
+##### (D) recognition: sự công nhận ________________________________ conduct: tiến hành
+##### extensive: rộng rãi __________________________________________ associates: cộng sự
+##### insights: hiểu biết sâu sắc __________________________________ target: mục tiêu
+##### consumer: người tiêu dùng ____________________________________ efficient: có hiệu quả
+##### (A) Unless: Trừ khi __________________________________________ (B) At once: Ngay lập tức
+##### (C) Now that: Bây giờ ________________________________________ (D) Although: Mặc dù
+
