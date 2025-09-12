@@ -30,10 +30,9 @@
 ##### (C) approached: tiếp cận _________________________ (D) committed: cam kết
 ##### article: bài báo _________________________________ stock: cổ phần
 ##### upon: trên; gần __________________________________ propose: đề xuất
-##### competitor: đối thủ cạnh tranh ___________________ (A) investment
-##### (B) acquisition
-(C) agenda
-##### (D) vision
+##### competitor: đối thủ cạnh tranh ___________________ (A) investment: đầu tư
+##### (B) acquisition: mua lại _________________________ (C) agenda: chương trình nghị sự
+##### (D) vision: tầm nhìn
 
 ### Ngày 9/9/2025
 ##### expectancy: sự mong đợi __________________________ severely: nghiêm trọng
