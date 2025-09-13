@@ -32,6 +32,11 @@
 ##### extra pay: trả thêm tiền _________________________ though: mặc dù
 ##### venue: địa điểm __________________________________ lovely: đáng yêu
 ##### backdrop: bối cảnh _______________________________ formal wear: trang phục trang trọng
+##### (A) assist: hỗ trợ _______________________________ (B) feature: tính năng
+##### (C) provide: cung cấp ____________________________ (D) refer: tham khảo
+##### firm: vững chãi __________________________________ proud to: tự hào
+##### senior: người lớn tuổi ___________________________ partner: cộng sự
+##### partial: một phần ________________________________ owner: người sở hữu
 
 
 ### Ngày 12/09/2025
