@@ -43,7 +43,9 @@
 ##### senior: người lớn tuổi ___________________________ associate: kết hợp
 ##### concentrate on: tập trung vào ____________________ (A) Instead: Thay vào đó
 ##### (B) Similarly: Tương tự __________________________ (C) Consequently: Do đó
-##### (D) In short: Tóm lại
+##### (D) In short: Tóm lại ____________________________ possess: sở hữu
+##### sharp: sắc; khôn ngoan ___________________________ legal: hợp pháp
+##### lawyer: luật sư __________________________________ outcome: kết quả
 
 
 
