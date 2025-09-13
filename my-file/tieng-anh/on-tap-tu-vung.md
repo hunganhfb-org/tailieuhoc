@@ -46,6 +46,11 @@
 ##### (D) In short: Tóm lại ____________________________ possess: sở hữu
 ##### sharp: sắc; khôn ngoan ___________________________ legal: hợp pháp
 ##### lawyer: luật sư __________________________________ outcome: kết quả
+##### wipe off: lau sạch _______________________________ lift: nâng lên
+##### monitor: màn hình ________________________________ stack: chồng
+##### stationery: văn phòng phẩm _______________________ supply: cung cấp
+##### intersection: giao lộ ____________________________ scattered: rải rác
+##### rug: tấm thảm ____________________________________ 
 
 
 
