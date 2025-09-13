@@ -23,6 +23,9 @@
 ##### client: khách hàng _______________________________ appointments: cuộc hẹn
 ##### accordingly: theo đó _____________________________ executive: điều hành
 ##### well-respected: được kính trọng __________________ firm: vững chãi
+##### (A) Likewise: Tương tự như vậy ___________________ (B) If possible: Nếu có thể
+##### (C) Before long: Chẳng bao lâu nữa _______________ (D) Rather: Tốt hơn
+
 
 
 ### Ngày 12/09/2025
