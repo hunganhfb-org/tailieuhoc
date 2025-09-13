@@ -1,6 +1,15 @@
 ### Ngày 13/09/2025
 ##### arrived at: đã đến _______________________________ promised: đã hứa
 ##### appears: xuất hiện _______________________________ deliver: giao
+#####  shipping: vận chuyển ____________________________ provider: nhà cung cấp
+##### refund: đền bù ___________________________________ shipping charge: phí vận chuyển
+##### attached: đính kèm _______________________________ coupon: phiếu giảm giá
+##### compensation: đền bù _____________________________ (A) delay: trì hoãn
+##### (B) work: công việc ______________________________ (C) loss: mất mát
+##### (D) risk: rủi ro _________________________________ discount: giảm giá
+##### satisfactory: thỏa đáng __________________________ at the top: ở trên cùng
+##### checkout: thanh toán _____________________________ print out: in ra
+
 ### Ngày 12/09/2025
 ##### premiere: buổi ra mắt ____________________________ publicity: công khai
 ##### reserve: dự trữ __________________________________ theater: nhà hát
