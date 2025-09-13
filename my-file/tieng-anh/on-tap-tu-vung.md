@@ -40,6 +40,11 @@
 ##### recognition: sự công nhận ________________________ deserved: xứng đáng
 ##### (A) entire: toàn bộ ______________________________ (B) possible: có thể
 ##### (C) sturdy: chắc chắn ____________________________ (D) major: lớn lao
+##### senior: người lớn tuổi ___________________________ associate: kết hợp
+##### concentrate on: tập trung vào ____________________ (A) Instead: Thay vào đó
+##### (B) Similarly: Tương tự __________________________ (C) Consequently: Do đó
+##### (D) In short: Tóm lại
+
 
 
 ### Ngày 12/09/2025
