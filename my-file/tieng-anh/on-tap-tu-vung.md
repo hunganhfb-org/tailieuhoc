@@ -25,6 +25,11 @@
 ##### well-respected: được kính trọng __________________ firm: vững chãi
 ##### (A) Likewise: Tương tự như vậy ___________________ (B) If possible: Nếu có thể
 ##### (C) Before long: Chẳng bao lâu nữa _______________ (D) Rather: Tốt hơn
+##### ceremony: lễ _____________________________________ beforehand: trước đó
+##### preparation: sự chuẩn bị _________________________ take shot: chụp ảnh
+##### candid: thẳng thắn _______________________________ reception: thu nhận
+##### composed: sáng tác _______________________________ quite a long: khá dài
+##### 
 
 
 
