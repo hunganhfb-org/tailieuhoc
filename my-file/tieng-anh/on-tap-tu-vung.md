@@ -11,6 +11,9 @@
 ##### checkout: thanh toán _____________________________ print out: in ra
 ##### Sincerely: Trân trọng ____________________________ probably: có lẽ
 ##### carpet: thảm _____________________________________ reception: thu nhận
+##### (A) thick: dày ___________________________________ (B) beautiful: đẹp
+##### (C) similar: tương tự ____________________________ (D) worn: mòn
+
 
 ### Ngày 12/09/2025
 ##### premiere: buổi ra mắt ____________________________ publicity: công khai
