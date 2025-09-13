@@ -1,4 +1,6 @@
 ### Ngày 13/09/2025
+##### arrived at: đã đến _______________________________ promised: đã hứa
+##### appears: xuất hiện _______________________________ deliver: giao
 ### Ngày 12/09/2025
 ##### premiere: buổi ra mắt ____________________________ publicity: công khai
 ##### reserve: dự trữ __________________________________ theater: nhà hát
