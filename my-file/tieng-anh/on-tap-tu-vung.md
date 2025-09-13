@@ -37,6 +37,9 @@
 ##### firm: vững chãi __________________________________ proud to: tự hào
 ##### senior: người lớn tuổi ___________________________ partner: cộng sự
 ##### partial: một phần ________________________________ owner: người sở hữu
+##### recognition: sự công nhận ________________________ deserved: xứng đáng
+##### (A) entire: toàn bộ ______________________________ (B) possible: có thể
+##### (C) sturdy: chắc chắn ____________________________ (D) major: lớn lao
 
 
 ### Ngày 12/09/2025
