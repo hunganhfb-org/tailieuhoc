@@ -9,6 +9,7 @@
 ##### (D) risk: rủi ro _________________________________ discount: giảm giá
 ##### satisfactory: thỏa đáng __________________________ at the top: ở trên cùng
 ##### checkout: thanh toán _____________________________ print out: in ra
+##### Sincerely: Trân trọng
 
 ### Ngày 12/09/2025
 ##### premiere: buổi ra mắt ____________________________ publicity: công khai
