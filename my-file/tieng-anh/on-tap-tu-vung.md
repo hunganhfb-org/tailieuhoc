@@ -1,3 +1,4 @@
+### Ngày 13/09/2025
 ### Ngày 12/09/2025
 ##### premiere: buổi ra mắt ____________________________ publicity: công khai
 ##### reserve: dự trữ __________________________________ theater: nhà hát
