@@ -13,6 +13,16 @@
 ##### carpet: thảm _____________________________________ reception: thu nhận
 ##### (A) thick: dày ___________________________________ (B) beautiful: đẹp
 ##### (C) similar: tương tự ____________________________ (D) worn: mòn
+##### durable: bền bỉ __________________________________ hire: thuê
+##### contractor: nhà thầu _____________________________ removal: loại bỏ
+#####  (A) Throughout: Xuyên suốt ______________________ (B) Often: Thường xuyên
+#####  (C) While: Trong khi ____________________________ (D) At first: Lúc đầu
+##### reception: thu nhận ______________________________ desk: bàn làm việc
+##### -> reception desk: quầy lễ tân
+##### neat: gọn gàng ___________________________________ reschedule: lên lịch lại
+##### client: khách hàng _______________________________ appointments: cuộc hẹn
+##### accordingly: theo đó _____________________________ executive: điều hành
+##### well-respected: được kính trọng __________________ firm: vững chãi
 
 
 ### Ngày 12/09/2025
