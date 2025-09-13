@@ -29,8 +29,9 @@
 ##### preparation: sự chuẩn bị _________________________ take shot: chụp ảnh
 ##### candid: thẳng thắn _______________________________ reception: thu nhận
 ##### composed: sáng tác _______________________________ quite a long: khá dài
-##### 
-
+##### extra pay: trả thêm tiền _________________________ though: mặc dù
+##### venue: địa điểm __________________________________ lovely: đáng yêu
+##### backdrop: bối cảnh _______________________________ formal wear: trang phục trang trọng
 
 
 ### Ngày 12/09/2025
