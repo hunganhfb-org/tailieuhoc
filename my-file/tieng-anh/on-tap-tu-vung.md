@@ -6,7 +6,7 @@
 ##### recruiting: tuyển dụng ___________________________ payroll: bảng lương
 ##### consultation: tư vấn _____________________________ testimonial: lời chứng thực
 ##### handle: xử lý ____________________________________ compensation: đền bù
-##### advise: khuyên nhủ _______________________________ 
+##### advise: khuyên nhủ _______________________________ appreciate: đánh giá
 ### Ngày 13/09/2025
 ##### arrived at: đã đến _______________________________ promised: đã hứa
 ##### appears: xuất hiện _______________________________ deliver: giao
