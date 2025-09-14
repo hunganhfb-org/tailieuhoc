@@ -1,5 +1,12 @@
 ### Ngày 14/09/2025
-##### put away: cất đi _________________________________ 
+##### put away: cất đi _________________________________ Convenient: Thuận lợi
+##### decade: thập kỷ __________________________________ start-ups: khởi nghiệp
+##### take flight: cất cánh ____________________________ outsourcing: thuê ngoài
+##### Consulting on: Tư vấn về _________________________ expertise: chuyên môn
+##### recruiting: tuyển dụng ___________________________ payroll: bảng lương
+##### consultation: tư vấn _____________________________ testimonial: lời chứng thực
+##### handle: xử lý ____________________________________ compensation: đền bù
+##### advise: khuyên nhủ _______________________________ 
 ### Ngày 13/09/2025
 ##### arrived at: đã đến _______________________________ promised: đã hứa
 ##### appears: xuất hiện _______________________________ deliver: giao
