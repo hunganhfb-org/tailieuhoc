@@ -3,7 +3,11 @@
 ##### (C) technology: công nghệ ________________________ (D) confidentiality: bảo mật
 ##### worth: đáng giá __________________________________ charge: đưa ra
 ##### simplified: đơn giản hóa _________________________ evaluation: đánh giá
-##### 
+##### gear: bánh răng __________________________________ supply: cung cấp
+##### inventory: hàng tồn kho __________________________ stock: cổ phần
+##### occupy: chiếm đóng _______________________________ workout: tập luyện
+##### apparel: may mặc _________________________________ profitable: có lợi nhuận
+##### enthusiast: người đam mê _________________________
 
 ### Ngày 14/09/2025
 ##### put away: cất đi _________________________________ Convenient: Thuận lợi
