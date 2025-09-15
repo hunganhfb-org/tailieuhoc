@@ -7,7 +7,7 @@
 ##### inventory: hàng tồn kho __________________________ stock: cổ phần
 ##### occupy: chiếm đóng _______________________________ workout: tập luyện
 ##### apparel: may mặc _________________________________ profitable: có lợi nhuận
-##### enthusiast: người đam mê _________________________
+##### enthusiast: người đam mê _________________________ closure: đóng cửa
 
 ### Ngày 14/09/2025
 ##### put away: cất đi _________________________________ Convenient: Thuận lợi
