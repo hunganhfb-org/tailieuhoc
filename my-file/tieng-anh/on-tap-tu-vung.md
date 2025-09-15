@@ -1,3 +1,10 @@
+### Ngày 15/09/2025
+##### (A) pricing: giá cả ______________________________ (B) flexibility: tính linh hoạt
+##### (C) technology: công nghệ ________________________ (D) confidentiality: bảo mật
+##### worth: đáng giá __________________________________ charge: đưa ra
+##### simplified: đơn giản hóa _________________________ evaluation: đánh giá
+##### 
+
 ### Ngày 14/09/2025
 ##### put away: cất đi _________________________________ Convenient: Thuận lợi
 ##### decade: thập kỷ __________________________________ start-ups: khởi nghiệp
@@ -59,7 +66,7 @@
 ##### monitor: màn hình ________________________________ stack: chồng
 ##### stationery: văn phòng phẩm _______________________ supply: cung cấp
 ##### intersection: giao lộ ____________________________ scattered: rải rác
-##### rug: tấm thảm ____________________________________ 
+##### rug: tấm thảm
 
 
 
