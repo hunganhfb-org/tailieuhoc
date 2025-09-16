@@ -2,7 +2,8 @@
 ##### armchair: ghế bành _______________________________ fallen on: ngã xuống
 ##### inspecting: kiểm tra _____________________________ tire: lốp xe
 ##### vending: bán hàng tự động ________________________ cart: xe đẩy
-##### 
+##### stand on: đứng trên ______________________________ walkway: lối đi
+##### utensil: đồ dùng _________________________________
 
 ### Ngày 15/09/2025
 ##### (A) pricing: giá cả ______________________________ (B) flexibility: tính linh hoạt
