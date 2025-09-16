@@ -3,7 +3,15 @@
 ##### inspecting: kiểm tra _____________________________ tire: lốp xe
 ##### vending: bán hàng tự động ________________________ cart: xe đẩy
 ##### stand on: đứng trên ______________________________ walkway: lối đi
-##### utensil: đồ dùng _________________________________
+##### utensil: đồ dùng _________________________________ stack: chồng
+##### corner: góc ______________________________________ mounted on: gắn trên
+##### tablecloth: khăn trải bàn ________________________ scissor: cái kéo
+##### apron: tạp dề ____________________________________ hook: cái móc
+##### pouring: đổ ______________________________________ beverage: đồ uống
+##### display case: tủ trưng bày _______________________ refrigerated: làm lạnh
+##### tent: lều ________________________________________ rear: ở phía sau
+##### speaker: loa _____________________________________ positioned: định vị
+##### podium: bục ______________________________________
 
 ### Ngày 15/09/2025
 ##### (A) pricing: giá cả ______________________________ (B) flexibility: tính linh hoạt
