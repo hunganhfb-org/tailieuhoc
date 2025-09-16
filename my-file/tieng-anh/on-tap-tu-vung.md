@@ -11,7 +11,10 @@
 ##### display case: tủ trưng bày _______________________ refrigerated: làm lạnh
 ##### tent: lều ________________________________________ rear: ở phía sau
 ##### speaker: loa _____________________________________ positioned: định vị
-##### podium: bục ______________________________________
+##### podium: bục ______________________________________ arranged: sắp xếp
+##### balcony: ban công ________________________________ prop up: chống đỡ
+##### mat: thảm ________________________________________ above: bên trên
+
 
 ### Ngày 15/09/2025
 ##### (A) pricing: giá cả ______________________________ (B) flexibility: tính linh hoạt
