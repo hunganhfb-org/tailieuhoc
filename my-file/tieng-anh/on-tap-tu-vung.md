@@ -14,6 +14,9 @@
 ##### podium: bục ______________________________________ arranged: sắp xếp
 ##### balcony: ban công ________________________________ prop up: chống đỡ
 ##### mat: thảm ________________________________________ above: bên trên
+#### Trung tâm
+##### instead of: thay vì ______________________________ relieve stress: giảm căng thẳng
+##### alleviate stress: giảm bớt căng thẳng ____________
 
 
 ### Ngày 15/09/2025
