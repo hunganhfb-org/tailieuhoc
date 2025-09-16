@@ -1,3 +1,9 @@
+### Ngày 16/09/2025
+##### armchair: ghế bành _______________________________ fallen on: ngã xuống
+##### inspecting: kiểm tra _____________________________ tire: lốp xe
+##### vending: bán hàng tự động ________________________ cart: xe đẩy
+##### 
+
 ### Ngày 15/09/2025
 ##### (A) pricing: giá cả ______________________________ (B) flexibility: tính linh hoạt
 ##### (C) technology: công nghệ ________________________ (D) confidentiality: bảo mật
